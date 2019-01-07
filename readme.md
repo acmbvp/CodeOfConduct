@@ -21,6 +21,7 @@ If you see someone who is making an extra effort to ensure our community is welc
 The following behaviors are expected and requested of all community members:
 
 •  Participate in an authentic and active way. In doing so, you contribute to the health and longevity of this community.
+
 •  Exercise consideration and respect in your speech and actions.
 
 •  Attempt collaboration before conflict.
@@ -91,16 +92,16 @@ This code of conduct and its related procedures also applies to unacceptable beh
 
 ## 10. Contact info
 
-Ms. Sarita Yadav (Faculty Mentor)
-sarita1320@yahoo.co.in
+Ms. Sarita Yadav (Faculty Mentor) - 
+sarita1320@yahoo.co.in, 
 (+91) 8178081668
 
 
-Srishti Gupta (Chairperson)
-ttsrishti@gmail.com
+Srishti Gupta (Chairperson) - 
+ttsrishti@gmail.com, 
 (+91) 7982654695
 
 
-Manbir Singh (Vice Chairperson)
-manbir@acm.org
+Manbir Singh (Vice Chairperson) - 
+manbir@acm.org, 
 (+91) 8826661919
