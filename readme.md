@@ -102,6 +102,6 @@ ttsrishti@gmail.com,
 (+91) 7982654695
 
 
-Ms. Manbir Singh (Vice Chairperson) - 
+Mr. Manbir Singh (Vice Chairperson) - 
 manbir@acm.org, 
 (+91) 8826661919
