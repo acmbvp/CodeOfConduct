@@ -97,11 +97,11 @@ sarita1320@yahoo.co.in,
 (+91) 8178081668
 
 
-Srishti Gupta (Chairperson) - 
+Ms. Srishti Gupta (Chairperson) - 
 ttsrishti@gmail.com, 
 (+91) 7982654695
 
 
-Manbir Singh (Vice Chairperson) - 
+Ms. Manbir Singh (Vice Chairperson) - 
 manbir@acm.org, 
 (+91) 8826661919
