@@ -93,10 +93,18 @@ This code of conduct and its related procedures also applies to unacceptable beh
 ## 10. Contact info
 
 Ms. Sarita Yadav (Faculty Mentor) - 
-sarita1320@yahoo.co.in 
+sarita1320@yahoo.co.in
+
 (+91) 8178081668
+
+
+Mr. Akanshu Raj (Chairperson) - 
+akanshuraj@gmail.com
+
+(+91) 8920836248
 
 
 Mr. Manbir Singh (Student Mentor) - 
 manbirmarwah@gmail.com 
+
 (+91) 8826661919
