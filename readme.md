@@ -97,6 +97,6 @@ sarita1320@yahoo.co.in
 (+91) 8178081668
 
 
-Mr. Manbir Singh (Community Lead) - 
+Mr. Manbir Singh (Student Mentor) - 
 manbirmarwah@gmail.com 
 (+91) 8826661919
